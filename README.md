@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sumi-satsuo
+- 💞️ I’m a indexer in FFXIV Venues at https://ffxivvenues.com/
+- 📫 Discord Sumi Satsuo#8786
